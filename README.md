@@ -1,0 +1,1 @@
+# az-n.barat-konstrukcio-korpuszalapu-vizsgalata
